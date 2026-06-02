@@ -1,4 +1,4 @@
-# 
+# Updated Quicken templates for Mac OS | Open Source Quicken templates for PC Windows. Featuring direct deposit and automatic sync — optimized for maximum performance on every platform.
 
 
 
